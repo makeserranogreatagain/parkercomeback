@@ -1,5 +1,5 @@
-ONE HOMEOWNER'S RESPONSE TO BILL PARKER'S LETTER
-Dear Mr. Parker:
+<p>ONE HOMEOWNER'S RESPONSE TO BILL PARKER'S LETTER</p>
+<p>Dear Mr. Parker:</p>
 I would like to thank you for taking the time to write Serrano homeowners, expressing your opinion about what is happening in our association. No doubt that opinion is influenced by reports that you receive from the employees to whom you have delegated the task of dealing with our association, homeowners your staff have appointed to the board through developer votes and Mr. Bowmen.
 Allow me to share with you what is happening as seen from the perspective of a homeowner who has lived in Serrano since 2002. Although I agree with you on several points made in your letter, I do not agree with many others. As with your letter, my missive too will be lengthy because I wish to cover the salient points comprehensively.
 Considering many factors that have come to light over the past few years I am not sure that Mr. Bowman’s departure is the loss that you have articulated. There are many problems with our association and the General Manager has to bear the responsibility when an organization is not running properly. Association accounting practices immediately come to mind.
